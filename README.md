@@ -1,1 +1,0 @@
-SQEW LABS LTD specializes in providing business intelligence solutions for MSMEs. Through advanced data mining, we extract actionable insights and generate leads to facilitate data-driven growth. #DataDrivenGrowth #BusinessIntelligence
